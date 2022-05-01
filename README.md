@@ -10,6 +10,7 @@ https://drive.google.com/file/d/1_ZeHzsiDRnbenL7KjbJ9C-BqOZJimy77/view?usp=shari
 https://sandiegounified.org/about/board_of_education/archives
 Add in the other years and translate into Hungarian and German.
 
+In the minutes - 
 August 8, 2000 Rh search.
 
 September 12, 2000 Car. 
